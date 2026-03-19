@@ -1,2 +1,2 @@
 # Maff-Tech-Solutionz
-Maff-Tech Solutions a digital marketing services 
+Maff-Tech Solutions is a digital marketing agency
